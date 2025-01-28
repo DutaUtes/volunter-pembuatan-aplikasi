@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Duta Suksesi Fathurrahman, [LinkedIn](https://www.linkedin.com/in/duta-suksesi-fathurrahman-7a61962b5/).  
